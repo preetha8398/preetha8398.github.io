@@ -8,6 +8,12 @@ This s example to show different parts of the Git repository and various command
 
 ## Purpose
 
+As stated above, the main sdcsDczsdvSDvSDvD
+
 ## Deployment
 
+sdvszdvSDvzsdv
+
 ## How to contribute
+
+sdvsdvsfdvdfvfvafgsfbikdnf
