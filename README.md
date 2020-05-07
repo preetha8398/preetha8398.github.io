@@ -28,4 +28,4 @@ dvszdvSDvzsdv..hiiiiiiiiii this s preetha
 ## How to contribute
 
 s
-dvsdvsfdvdfvfvafgsfbikdnf....its enough
+dvsdvsfdvdfvfvafgsfbikdnf....its enough all rights reserved
